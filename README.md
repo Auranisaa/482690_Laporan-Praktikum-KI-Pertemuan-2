@@ -1,0 +1,1 @@
+# 482690_Laporan-Praktikum-KI-Pertemuan-2
